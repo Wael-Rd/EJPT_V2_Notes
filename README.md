@@ -297,4 +297,5 @@ _\( )/_            /(_)\      .--'/()\'--.    | /  \ |   /(O)\
 
 ---
 
-*Happy hacking! Stay ethical and legal.*                                                                                                                                                        Mrx0rd
+*Happy hacking! Stay ethical and legal.*                                                                                                                                                                
+                                                                                                                                                                                                       ©️Mrx0rd🕷️ 
